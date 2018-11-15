@@ -1,1 +1,1 @@
-Richard Parkes
+Rich Parkes
